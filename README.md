@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Ebieri
+- 👀 I’m interested in GitHub workflow
+- 🌱 I’m currently learning repository
+- 💞️ I’m looking to collaborate on GitHub
+- 📫 How to reach me jasperkingebi@gmail.com
+- 😄 Pronouns: Jasper
+- ⚡ Fun fact: who father the father of your grandfather 🤔🤔🤔
